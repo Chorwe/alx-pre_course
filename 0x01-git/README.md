@@ -1,1 +1,1 @@
-The world is my oyster
+The world is my oyster, I must shine!
